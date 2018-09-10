@@ -1,3 +1,3 @@
 # hello-world
 Hello world, its Marina.
-I love to write in my journal and decorate it with washi tape.
+I love go kayaking. What are some great places to kayak in or around Boston?
